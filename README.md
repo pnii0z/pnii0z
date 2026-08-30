@@ -2,7 +2,7 @@
                     
 <p align="center"><img src=https://github.com/pnii0z/Pnii0zz/blob/32fcbc89b0684296dff7f93a89d599462c7ee6e2/Post%20by%20%40echonya%20%C2%B7%207%20images.gif>
 
-  [![Typing SVG](https://readme-typing-svg.demolab.com?font=Schoolbell&size=25&letterSpacing=0.2rem&pause=1000&color=FCD6E4&center=true&vCenter=true&multiline=true&width=435&height=75&lines=%22I%E2%80%99ll+keep+wishing+for+a+world;+where+you+can+be+happy.%22)](https://git.io/typing-svg)
+  [![Typing SVG](https://readme-typing-svg.demolab.com?font=Schoolbell&pause=1000&color=FCD6E4&center=true&vCenter=true&width=435&lines=%22I%E2%80%99ll+keep+wishing+for+a+world+where+you+can+be+happy%22)](https://git.io/typing-svg)
   
 <p align="center"><img src=https://github.com/pnii0z/Pnii0zz/blob/30e5a436606da9fe72011ee66dc6bd067841a103/w>
 <p align="center"> _੭୧_  @˖𝒩ℴ𝓇 .𖥔 ݁ ˖𓂃  ¹⁸⁺
