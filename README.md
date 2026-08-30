@@ -6,7 +6,7 @@
 <p align="center">                     𝑡ℎ𝑒𝑦/𝑡ℎ𝑒𝑚   𐔌՞. .՞𐦯
 <p align="center"> ⏔⏔⏔⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔⏔⏔⏔
 
-[straw](https://pnii0z.straw.page) [ins](https://www.instagram.com/pnii0z._/)
+                                              [straw](https://pnii0z.straw.page) ✦ [ins](https://www.instagram.com/pnii0z._/)
 
   
 <p align="center"><img src=https://github.com/pnii0z/Pnii0zz/blob/152d19a3e5ccde8e8556a2fbeab35f90de74a60d/Tumblr_l_576063075038944.jpg>
