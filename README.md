@@ -16,7 +16,7 @@
 
 
 <p align="center">
-  <img src=https://github.com/pnii0z/Pnii0zz/blob/bf341542b96b8605c2b713b80066a9ba22a54b5c/2f251f17_original.gif> <a href="https://pnii0z.straw.page">sᴛʀᴀᴡ</a> ٠࣪⭑ <a href="https://www.instagram.com/pnii0z._/">ins</a> <img src=https://github.com/pnii0z/Pnii0zz/blob/bf341542b96b8605c2b713b80066a9ba22a54b5c/7a2cd3de_original.gif>
+  <img src=https://github.com/pnii0z/Pnii0zz/blob/bf341542b96b8605c2b713b80066a9ba22a54b5c/2f251f17_original.gif> <a href="https://pnii0z.straw.page">sᴛʀᴀᴡ</a> ٠࣪⭑ <a href="https://www.instagram.com/pnii0z._/">ɪɴs</a> <img src=https://github.com/pnii0z/Pnii0zz/blob/bf341542b96b8605c2b713b80066a9ba22a54b5c/7a2cd3de_original.gif>
 
   
 <p align="center"><img src=https://github.com/pnii0z/Pnii0zz/blob/152d19a3e5ccde8e8556a2fbeab35f90de74a60d/Tumblr_l_576063075038944.jpg>
