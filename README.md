@@ -8,10 +8,6 @@
   </a>
 </p>
   
-<p align="center"><img src=https://github.com/pnii0z/Pnii0zz/blob/30e5a436606da9fe72011ee66dc6bd067841a103/w>
-<p align="center">
-  <img src="./header.svg" alt="decorative header" width="700" />
-</p>
 
 
 
