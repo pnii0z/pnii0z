@@ -8,6 +8,9 @@
 
   <rect width="100%" height="100%" fill="transparent" />
 
+  <!-- Snug border around text -->
+  <rect x="80" y="30" width="1440" height="260" fill="none" stroke="#FCD6E4" stroke-width="2" rx="8" />
+
   <text x="50%" y="72" text-anchor="middle" class="big" fill="#FCD6E4"> _੭୧_  @˖𝒩ℴ𝓇 .𖥔 ݁ ˖𓂃  ¹⁸⁺</text>
   <text x="50%" y="156" text-anchor="middle" class="med" fill="#FCD6E4">                     𝑡ℎ𝑒𝑦/𝑡ℎ𝑒𝑚   𐔌՞. .՞𐦯</text>
   <text x="50%" y="244" text-anchor="middle" class="small" fill="#FCD6E4">⏔⏔⏔⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔⏔⏔⏔</text>
