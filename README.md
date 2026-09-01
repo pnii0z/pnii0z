@@ -11,7 +11,7 @@
 </p>
   
 <p align="center">
-  <img src=https://github.com/pnii0z/Pnii0zz/blob/b9ec7cd6afc2da01b20a61c2b08f421c1b3e6e9f/Kh%C3%B4ng%20C%C3%B3%20Ti%C3%AAu%20%C4%90%E1%BB%81137_20260901120338.png>
+  <img src=https://github.com/pnii0z/Pnii0zz/blob/d0697eca64001a6668db021f52cc29ea3981e373/Kh%C3%B4ng%20C%C3%B3%20Ti%C3%AAu%20%C4%90%E1%BB%81137_20260901123533.png>
 
 
 <p align="center">
