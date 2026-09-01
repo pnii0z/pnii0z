@@ -12,7 +12,7 @@
   </a>
 </p>
 
-<p align="center">⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=FCD6E4&center=true&vCenter=true&repeat=false&width=435&lines=%E2%8F%94%E2%8F%94%E2%8F%94%E2%8F%94%E2%8F%94%E2%8F%94+%EA%92%B0+%E1%A7%94%E0%B7%86%E1%A7%93+%EA%92%B1+%E2%8F%94%E2%8F%94%E2%8F%94%E2%8F%94%E2%8F%94%E2%8F%94)](https://git.io/typing-svg)
   
 <p align="center">
   <img src=https://github.com/pnii0z/Pnii0zz/blob/d0697eca64001a6668db021f52cc29ea3981e373/Kh%C3%B4ng%20C%C3%B3%20Ti%C3%AAu%20%C4%90%E1%BB%81137_20260901123533.png>
