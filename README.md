@@ -3,12 +3,16 @@
 <p align="center"><img src=https://github.com/pnii0z/Pnii0zz/blob/bf341542b96b8605c2b713b80066a9ba22a54b5c/w>
   
 <p align="center"><img src=https://github.com/pnii0z/Pnii0zz/blob/32fcbc89b0684296dff7f93a89d599462c7ee6e2/Post%20by%20%40echonya%20%C2%B7%207%20images.gif>
+
+
   
 <p align="center">
   <a href="https://git.io/typing-svg">
     <img src="https://readme-typing-svg.demolab.com?font=Schoolbell&pause=1000&color=FCD6E4&center=true&vCenter=true&width=435&lines=%22I%E2%80%99ll+keep+wishing+for+a+world+where+you+can+be+happy%22" />
   </a>
 </p>
+
+<p align="center">⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔
   
 <p align="center">
   <img src=https://github.com/pnii0z/Pnii0zz/blob/d0697eca64001a6668db021f52cc29ea3981e373/Kh%C3%B4ng%20C%C3%B3%20Ti%C3%AAu%20%C4%90%E1%BB%81137_20260901123533.png>
