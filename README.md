@@ -18,12 +18,10 @@
   </a>
 </p>
   
-<p align="center">$\color{#FCD6E4}{\textsf{ 𓈒 ຼ ͜𓐇˚ִִ𓈒꒱꒱ 
-              ⡞⠳⣄⣀⣠⠞⢷ ֹ۪
-        @˖𝒩ℴ𝓇 .𖥔 ݁ ˖𓂃  ;;  ♫
-      𝄞⨾𓍢ִ໋  they ︵ them ₊˚⊹☆
-          ꒷꒦ ¹⁸⁺ (˵◝ ⩊ ◜˵マ}}$
-
+<p align="center">$\color{#FCD6E4}{\textsf{⡞⠳⣄⣀⣠⠞⢷ ֹ۪}}$
+<p align="center">$\color{#FCD6E4}{\textsf{  @˖𝒩ℴ𝓇 .𖥔 ݁ ˖𓂃   ♫}}$
+<p align="center">$\color{#FCD6E4}{\textsf{𝄞⨾𓍢ִ໋  they ︵ them ₊˚⊹☆}}$
+<p align="center">$\color{#FCD6E4}{\textsf{꒷꒦ ¹⁸⁺ (˵◝ ⩊ ◜˵マ}}$
 
 <p align="center">
   <img src=https://github.com/pnii0z/Pnii0zz/blob/bf341542b96b8605c2b713b80066a9ba22a54b5c/2f251f17_original.gif> <a href="https://pnii0z.straw.page">sᴛʀᴀᴡ</a> ٠࣪⭑ <a href="https://www.instagram.com/pnii0z._/">ɪɴs</a> <img src=https://github.com/pnii0z/Pnii0zz/blob/bf341542b96b8605c2b713b80066a9ba22a54b5c/7a2cd3de_original.gif>
