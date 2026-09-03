@@ -27,8 +27,10 @@
 
 ___
 
-<p align="center"> $\color{#FCD6E4}𑣲<a href="https://www.instagram.com/yawa_.0/">ℳ𝓎 𝒽ℴ𝓂𝒾ℯ</a> ꒰ᐢ⸝⸝⸝⸝ᐢ꒱⸒⸒
+<p align="center"> <a href="https://www.instagram.com/yawa_.0/">ℳ𝓎 𝒽ℴ𝓂𝒾ℯ</a> ꒰ᐢ⸝⸝⸝⸝ᐢ꒱⸒⸒
   <p align="center"><img src=https://github.com/pnii0z/Pnii0zz/blob/43500a8a518bb14b897c117de9c3b8bbf2680ad7/Screenshot_20260902_024046_WeChat.png>
 
     
 <p align="center"><img src=https://github.com/pnii0z/Pnii0zz/blob/152d19a3e5ccde8e8556a2fbeab35f90de74a60d/Tumblr_l_576063075038944.jpg>
+
+
