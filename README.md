@@ -26,7 +26,9 @@
 <p align="center">
   <img src=https://github.com/pnii0z/Pnii0zz/blob/bf341542b96b8605c2b713b80066a9ba22a54b5c/2f251f17_original.gif> <a href="https://pnii0z.straw.page">sᴛʀᴀᴡ</a>  <align="center">$\color{#FCD6E4}{\textsf{༉‧₊˚.}}$ <a href="https://www.instagram.com/pnii0z._/">ɪɴs</a> <img src=https://github.com/pnii0z/Pnii0zz/blob/bf341542b96b8605c2b713b80066a9ba22a54b5c/7a2cd3de_original.gif>
 
-___
+
+<p align="center"><img src=https://cdn.phototourl.com/member/2026-09-03-5252496c-db72-4c80-a901-b44f505f7fcc.webp>
+
 
 <p align="center"> <align="center">$\color{#FCD6E4}{\textsf{𑣲}}$<a href="https://www.instagram.com/yawa_.0/">ℳ𝓎 𝒽ℴ𝓂𝒾ℯ</a> <align="center">$\color{#FCD6E4}{\textsf{꒰ᐢ⸝⸝⸝⸝ᐢ꒱}}$
   <p align="center"><img src=https://github.com/pnii0z/Pnii0zz/blob/43500a8a518bb14b897c117de9c3b8bbf2680ad7/Screenshot_20260902_024046_WeChat.png>
