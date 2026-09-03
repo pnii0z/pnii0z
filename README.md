@@ -20,7 +20,7 @@
   
 <p align="center">$\color{#FCD6E4}{\textsf{⡞⠳⣄⣀⣠⠞⢷ ֹ۪}}$
 <p align="center">$\color{#FCD6E4}{\textsf{  @˖𝒩ℴ𝓇 .𖥔 ݁ ˖𓂃   ♫}}$
-<p align="center">$\color{#FCD6E4}{\textsf{𝄞⨾𓍢ִ໋  they ︵ them ₊˚⊹☆}}$
+<p align="center">$\color{#FCD6E4}{\textsf{𝄞⨾𓍢ִ໋  𝒕𝒉𝒆𝒚 ︵ 𝒕𝒉𝒆𝒎 ₊˚⊹☆}}$
 <p align="center">$\color{#FCD6E4}{\textsf{꒷꒦ ¹⁸⁺ (˵◝ ⩊ ◜˵マ}}$
 
 <p align="center">
