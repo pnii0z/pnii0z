@@ -18,8 +18,11 @@
   </a>
 </p>
   
-<p align="center">
-  <img src=https://github.com/pnii0z/Pnii0zz/blob/d0697eca64001a6668db021f52cc29ea3981e373/Kh%C3%B4ng%20C%C3%B3%20Ti%C3%AAu%20%C4%90%E1%BB%81137_20260901123533.png>
+<p align="center">$\color{#FCD6E4}{\textsf{ 𓈒 ຼ ͜𓐇˚ִִ𓈒꒱꒱ 
+              ⡞⠳⣄⣀⣠⠞⢷ ֹ۪
+        @˖𝒩ℴ𝓇 .𖥔 ݁ ˖𓂃  ;;  ♫
+      𝄞⨾𓍢ִ໋  they ︵ them ₊˚⊹☆
+          ꒷꒦ ¹⁸⁺ (˵◝ ⩊ ◜˵マ}}$
 
 
 <p align="center">
